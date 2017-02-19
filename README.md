@@ -5,3 +5,6 @@ to become to better person fighting!!!
 
 
 forget the ex(smile face)
+
+
+dont look back~
